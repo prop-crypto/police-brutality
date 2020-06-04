@@ -12,8 +12,9 @@ Police use or threaten to use pepper-spray in what appears to be a private resid
 
 ### Police shoot tear gas at peaceful protestors who have their hands up | June 3rd
 
-Iowa City Police shoot tear gas at peaceful protestors who have their hands up. Some protestors stumble and fall as they try to flee.
+Iowa City Police shoot tear gas at peaceful protestors who have had their hands up and chanted "hands up, don't shoot" . Some protestors stumble and fall as they try to flee.
 
 **Links**
 
 * https://twitter.com/DJPAIMON/status/1268399580753858561
+* https://twitter.com/ColtrainTravis/status/1268411504388431873
